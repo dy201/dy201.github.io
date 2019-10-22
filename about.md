@@ -4,11 +4,11 @@ title: About
 permalink: /about/
 ---
 
-work for china telecom 1 years!
+work for china telecom 1 year.
 
 ### More Information
 
-work hard, life is short!
+work hard ! make dream come true!
 
 ### Contact me
 
