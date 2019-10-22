@@ -8,8 +8,8 @@ Some information about you!
 
 ### More Information
 
-A place to include any other types of information that you'd like to include about yourself.
+work hard. maybe i can work for ali someday!
 
 ### Contact me
 
-[email@domain.com](mailto:email@domain.com)
+[17758033104@189.cn](mailto:17758033104@189.cn)
