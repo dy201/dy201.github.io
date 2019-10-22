@@ -8,7 +8,7 @@ work for china telecom 1 years!
 
 ### More Information
 
-work hard. maybe i can work for ali someday!
+work hard. maybe i can work for ali one day!
 
 ### Contact me
 
